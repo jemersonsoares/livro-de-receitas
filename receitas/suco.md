@@ -8,9 +8,11 @@
 
 
 ## Modo de preparo	
- - Descasque as laranjas
- - Corte as laranjas e bata com acúcar
- - Sirca a vontate 
+ - Corte as laranjas em formato de cruz
+ - Retire os gomos e os caroços da laranja.
+ - Bata no liquidificador junto ao acúçar por uns 3 minutos 
+ - Coe o suco
+ - Adicione gelo
 	
 
 	
